@@ -16,7 +16,7 @@ Please report any errors you find by opening an Issue and clearly referencing th
 6. Sautee the vegetables on medium flam for five minuts.
 7. Deglaze the pan with vingar while carefuly stirring continously.
 8. Simmer the sause untill it thickens naturaly.
-9. Season with saltt, peppar, and dried orregano.
+9. Season with salt, pepper, and dried oregano.
 10. Chop the parsley finley and set asside immediatly.
 11. Layer the pasta sheets evently in the cassarole dish carefullly.
 12. Spread the filling equaly and thikly over each pasta layer consistantly.
